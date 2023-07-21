@@ -1,6 +1,6 @@
 ## Hi! 
 
-* 👩🏻‍💻 Mobile Developer at [@GrupoBoticario](https://https://github.com/grupoboticario)
+* 👩🏻‍💻 Mobile Developer at [@GrupoBoticario](https://www.boticario.com.br/)
 * 💜 Co-founder at [@Mentallis](https://mentallis.app/)
  
 ### Social!  
