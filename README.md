@@ -1,4 +1,4 @@
-## Olá! Sou o Jean Carlo 
+## Hi! 
 
 * 👩🏻‍💻 Mobile Developer at [@GrupoBoticario](https://https://github.com/grupoboticario)
 * 💜 Co-founder at [@Mentallis](https://mentallis.app/)
